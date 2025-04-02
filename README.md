@@ -1,0 +1,1 @@
+# SztucznaInteligencja_20538
